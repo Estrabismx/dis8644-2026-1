@@ -26,7 +26,7 @@ Mujeres Bacanas. (s.f.). Wendy Carlos: La maestra de la música y pionera del si
 
 Pinch, T. J., y Trocco, F. (2002). Analog Days: The Invention and Impact of the Moog Synthesizer. Harvard University Press. https://books.google.cl/books?id=I9bODwAAQBAJ
 
-Schonbrun, R. [Nombre de usuario]. (2024, 18 de junio). Wendy Carlos - Switched-On Bach (1968) [Video]. YouTube. https://youtu.be/oGWneRoIgMw
+Schonbrun, R. (2024, 18 de junio). Wendy Carlos - Switched-On Bach (1968) [Video]. YouTube. https://youtu.be/oGWneRoIgMw
 
 Wikipedia. (s.f.). Moog synthesizer. Recuperado el 13 de marzo de 2026, de https://en.wikipedia.org/wiki/Moog_synthesizer
 
